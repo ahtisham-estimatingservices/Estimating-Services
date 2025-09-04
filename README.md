@@ -108,6 +108,6 @@ Feel free to reach out to discuss your specific project needs.
 
 **Ahtisham Ahmed Qureshi**  
 Senior Drywall Estimator  
-📧 *[qureshiahtishamahmed@gmail.com]*  
-📞 *[+92-345-9560374]*  
+📧 *qureshiahtishamahmed@gmail.com*  
+📞 *+92-345-9560374*  
 
