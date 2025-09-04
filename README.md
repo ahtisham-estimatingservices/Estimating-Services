@@ -1,6 +1,6 @@
 # 📐 Ahtisham Ahmed Qureshi – Remote Drywall Estimator
 
-👷 **Senior Civil Engineer | Drywall Estimation Specialist | 5+ Years Experience**
+👷 Senior Civil Engineer | Drywall Estimation Specialist | 5+ Years Experience
 
 Welcome! My name is **Ahtisham Ahmed Qureshi**, a highly motivated Civil Engineer & Quantity Surveyor with over **5 years of construction industry experience**, specializing in **drywall estimation for the past 3 years**.
 
