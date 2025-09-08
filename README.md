@@ -48,7 +48,6 @@ I have successfully estimated over **300 drywall projects** across major US stat
 - 🗽 New York  
 - 🌵 Texas  
 - 🌴 Florida
-- 🌴 New York
 
 ✅ **Proven results**: Achieved a **25% reduction in estimating time** for a recent US project while helping secure the winning bid.
 
