@@ -1,14 +1,14 @@
-# 📐 Ahtisham Ahmed Qureshi – Remote Drywall Estimator
+# Senior Drywall Estimator – Ahtisham Ahmed Qureshi
 
-👷 Senior Civil Engineer | Drywall Estimation Specialist | 5+ Years Experience
+Senior Civil Engineer & Quantity Surveyor | Drywall Estimation Specialist | 5+ Years Experience
 
-Welcome! My name is **Ahtisham Ahmed Qureshi**, a highly motivated Civil Engineer & Quantity Surveyor with over **5 years of construction industry experience**, specializing in **drywall estimation for the past 3 years**.
+Welcome! My name is **Ahtisham Ahmed Qureshi**, a highly motivated Civil Engineer & Quantity Surveyor with over **7 years of construction industry experience**, specializing in **drywall estimation for the past 5 years**.
 
 I am offering **full-time remote professional drywall estimating services**, aligning with your company's schedule and tailored to meet your project needs.
 
 ---
 
-## 🧱 Core Expertise in Drywall Estimation
+## Core Expertise in Drywall Estimation
 
 With a strong foundation in **US construction standards**, I provide **accurate cost estimates** for a wide range of drywall and related services:
 
@@ -27,7 +27,7 @@ With a strong foundation in **US construction standards**, I provide **accurate 
 
 ---
 
-## 🏗️ Additional Construction Estimation Capabilities
+## Additional Construction Estimation Capabilities
 
 I also bring expertise in additional construction divisions to deliver **comprehensive and integrated project assessments**:
 
@@ -40,20 +40,15 @@ I also bring expertise in additional construction divisions to deliver **compreh
 
 ---
 
-## 📍 Project Experience Across the US
+## Project Experience Across the US
 
-I have successfully estimated over **300 drywall projects** across major US states:
+I have successfully estimated over **500 drywall projects** across major US & Australian states:
 
-- 🏙️ California  
-- 🗽 New York  
-- 🌵 Texas  
-- 🌴 Florida
-
-✅ **Proven results**: Achieved a **25% reduction in estimating time** for a recent US project while helping secure the winning bid.
+**Proven results**: Achieved a **25% reduction in estimating time** for a recent US project while helping secure the winning bid.
 
 ---
 
-## 🤝 Collaborating with US Subcontractors
+## Collaborating with US Subcontractors
 
 I have **hands-on experience** working directly with **US-based subcontractors**, providing insights into local expectations and ensuring seamless communication throughout the estimating process.
 
@@ -63,15 +58,15 @@ I have **hands-on experience** working directly with **US-based subcontractors**
 
 Hiring a remote estimator like myself can offer your company several key advantages:
 
-- ⏱️ **Reduce Estimating Time**  
-- 🚀 **Boost Productivity**  
-- 💰 **Optimize Project Costs**
+-  **Reduce Estimating Time**  
+-  **Boost Productivity**  
+-  **Optimize Project Costs**
 
 I free up your internal resources by delivering **fast, accurate, and competitive estimates** to help win more bids.
 
 ---
 
-## 🧰 Tools & Software Proficiency
+## Tools & Software Proficiency
 
 I am proficient in the following industry-standard tools:
 
@@ -83,15 +78,15 @@ I am proficient in the following industry-standard tools:
 
 ---
 
-## 📂 Portfolio
+## Portfolio
 
 Here is the link to the sample projects I have for my previous clients.
 
-🔗 **[Access the Portfolio Folder](https://drive.google.com/drive/folders/1APEHSWeQvOJy1q-2ipXyxFOC0Acz3ICZ?usp=drive_link)**
+🔗 **[Access the Portfolio Folder](https://drive.google.com/drive/folders/13TWPwXSJJyOJkgusCxpqWe_iYDQ6xiW9?usp=sharing)**
 
 ---
 
-## 📞 Let's Connect
+## Let's Connect
 
 I am eager to support your team and help your company:
 
@@ -102,8 +97,6 @@ I am eager to support your team and help your company:
 Feel free to reach out to discuss your specific project needs.
 
 ---
-
-**Sincerely,**
 
 **Ahtisham Ahmed Qureshi**  
 Senior Drywall Estimator  
