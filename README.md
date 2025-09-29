@@ -54,7 +54,7 @@ I have **hands-on experience** working directly with **US-based subcontractors**
 
 ---
 
-## 💼 Why Work with a Remote Estimator?
+## Why Work with a Remote Estimator?
 
 Hiring a remote estimator like myself can offer your company several key advantages:
 
