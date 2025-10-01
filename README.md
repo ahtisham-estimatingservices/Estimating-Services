@@ -10,7 +10,7 @@ I am offering **full-time remote professional drywall estimating services**, ali
 
 ## Core Expertise in Drywall Estimation
 
-With a strong foundation in **US construction standards**, I provide **accurate cost estimates** for a wide range of drywall and related services:
+With a strong foundation in **US & Australian construction standards**, I provide **accurate cost estimates** for a wide range of drywall and related services:
 
 - **Wall Gypsum Board**  
   - Fire-resistant  
@@ -40,7 +40,7 @@ I also bring expertise in additional construction divisions to deliver **compreh
 
 ---
 
-## Project Experience Across the US
+## Project Experience Across the US & Australia
 
 I have successfully estimated over **500 drywall projects** across major US & Australian states:
 
@@ -48,7 +48,7 @@ I have successfully estimated over **500 drywall projects** across major US & Au
 
 ---
 
-## Collaborating with US Subcontractors
+## Collaborating with US & Australian Subcontractors
 
 I have **hands-on experience** working directly with **US-based subcontractors**, providing insights into local expectations and ensuring seamless communication throughout the estimating process.
 
